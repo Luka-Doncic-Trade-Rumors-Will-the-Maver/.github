@@ -80,5 +80,5 @@ A: While the rumors are intriguing, the likelihood of Luka being traded to the L
 
 **Read More:** [Groundhog Day 2025: Results, Predictions, and Traditions](https://example.com/groundhog-day-2025)  
 
-**Read More:** (https://www.articlegiants.com/2025/02/luka-doncic-trade-rumors-will-the-mavericks-star-be-heading-to-the-lakers/)
+**Read More:**(https://www.articlegiants.com/2025/02/luka-doncic-trade-rumors-will-the-mavericks-star-be-heading-to-the-lakers/)
 
